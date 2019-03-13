@@ -1,6 +1,6 @@
 
 
-### _Only $100!_
+# _Only $100!_
 
 # Benefits
 
@@ -8,7 +8,5 @@
 - Upgrade your driveway
 - Once a year maintenance
 
-
 ## Text (469) 450-2619 to confirm your appointment 
-### Check out out Instagram @healthydriveway for our past work
-[Link](url) and ![Image](src)
+### Check out our Instagram @healthydriveway for our past work
